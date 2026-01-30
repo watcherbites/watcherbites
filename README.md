@@ -1,6 +1,6 @@
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
-**BYI ( or after, if youre curious LMAO.. )**
+**BYI ( or after, if youre curious LMAO.. this is more of an about me i think HMM)**
 
 i get nervous EASILY.. i sometimes struggle to initiate conversation with people, coming up to me or whispering to me is REALLY HELPFUL and ENCOURAGED! i LOVE talking to people and making new friends (ESPECIALLY HOMESTUCK ONES).. i LOVE c + h but i get nERVOUSS just walking up!! if you see me around and you wanna sit with me or vice versa just WHISPER (I MIGHT NOT SEE IT AT FIRST IF IM OFFTAB OR AFK THOUGH... BUT I WILL COME!)
 
