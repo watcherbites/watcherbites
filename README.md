@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://image2url.com/r2/default/images/1769813456741-b5d21916-c443-4b6c-88e4-87dfe2859fb1.gif" alt="GIF" width="300">
+</p>
+
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
 **BYI ( or after, if youre curious LMAO.. this is more of an about me i think HMM)**
