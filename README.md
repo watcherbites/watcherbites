@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://image2url.com/r2/default/images/1769813456741-b5d21916-c443-4b6c-88e4-87dfe2859fb1.gif" alt="GIF" width="300">
+  <img src="https://image2url.com/r2/default/images/1769814077425-51959cdd-ff4c-4ea9-957d-14a8543094ff.gif" alt="Centered image" width="300">
 </p>
 
 hello! i'm erin, welcome to my github!! 
