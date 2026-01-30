@@ -22,4 +22,4 @@ HOMESTUCK FANS OHH YESS!! musical fans (i sure love a good showtune heh), UHH MY
 
 i am usually with my FRIENDS... my friends are NICE, they wont bite a swear.. if i am sitting with any of them and you wanna come around dont be afraid to, just let me greet you so they know that youre with me and they dont accidentally hide you.. GULP!
 
-(okay i'll come back to this wait for me...)
+(okay i'll come back to this wait for me...) (literally doesnt come back)
