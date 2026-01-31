@@ -1,7 +1,9 @@
-<p align="center">
-  <img src="https://res.cloudinary.com/dylgc2jrt/image/upload/v1769818220/epl0ndqo7wtoluqh8s08.gif" width= "700" >
-</p>
 
+
+<p align="center">
+  <img src="https://res.cloudinary.com/dylgc2jrt/image/upload/v1769818220/epl0ndqo7wtoluqh8s08.gif" width= "500" >
+</p>
+<p align="center"> <sub>get ready to read a mountain of text
 
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
