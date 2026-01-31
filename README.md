@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://image2url.com/r2/default/images/1769814077425-51959cdd-ff4c-4ea9-957d-14a8543094ff.gif" alt="Centered image" width="300">
+  <img src="https://res.cloudinary.com/dylgc2jrt/image/upload/v1769818220/epl0ndqo7wtoluqh8s08.gif" width= "700" >
 </p>
+
 
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
