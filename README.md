@@ -18,7 +18,7 @@ SOMETIMES WHEN IM WITH CERTAIN PEOPLE MY HUMOR GETS A LITTLE BIT DIRTY.. I APOLO
 
 **DNI :**
 
-proshippers, darkshippers, problematic fellas, uhhh what else uhh,, MEAN PEOPLE... HMM people who are not nice to my friends and overly sexual strangers / NEW friends.. oh also ex proshippers and darkshippers are on thin ice along with people who were problematic in the past, but mostly ex pro and darkship, i dont play about that shit NO SIREE..
+HUNTER. /j,, proshippers, darkshippers, problematic fellas, uhhh what else uhh,, MEAN PEOPLE... HMM people who are not nice to my friends and overly sexual strangers / NEW friends.. oh also ex proshippers and darkshippers are on thin ice along with people who were problematic in the past, but mostly ex pro and darkship, i dont play about that shit NO SIREE..
 
 **INT :**
 
