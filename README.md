@@ -22,7 +22,7 @@ HUNTER. /j
 
 proshippers, darkshippers, problematic fellas, uhhh what else uhh,, MEAN PEOPLE... HMM people who are not nice to my friends and overly sexual strangers / NEW friends.. oh also ex proshippers and darkshippers are on thin ice along with people who were problematic in the past, but mostly ex pro and darkship, i dont play about that shit NO SIREE..
 
-oh also please try not to cover my pony unless we are close pals LIKE SITTING ON ME AND HIDING ME... SORRY... LOOKS AROUND
+oh also please try not to jokingly cover my pony unless we are close pals (the ones in my bios mostly, you fellas can dont worry...), LIKE SITTING ON ME AND HIDING ME... SORRY... LOOKS AROUND
 
 **INT :**
 
