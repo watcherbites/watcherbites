@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "600" >
+  <img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "300" >
 
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
