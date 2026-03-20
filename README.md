@@ -3,7 +3,7 @@
 
   <img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "300" >
 
-hello! i'm erin, welcome to my github!! 
+HELLO!! I'M ERIN, WELCOME TO MY GITHUB!
 ---------------------
 <details>
 <summary><strong>BEFORE YOU INTERACT / ABOUT ME :</strong></summary>
@@ -39,3 +39,7 @@ i am usually with my FRIENDS... my friends are NICE, they wont bite a swear.. if
 
 (okay i'll come back to this wait for me...) (literally doesnt come back)
 </details>
+
+---------------------
+
+uhh hold on im workogn on something here
