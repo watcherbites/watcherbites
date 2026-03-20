@@ -1,8 +1,7 @@
-<p align="center"> <sub>get ready to read a mountain of text
+
 
 <p align="center">
-  <img src="https://res.cloudinary.com/dylgc2jrt/image/upload/v1769818220/epl0ndqo7wtoluqh8s08.gif" width= "500" >
-</p>
+  <img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "500" >
 
 hello! i'm erin, welcome to my github!! 
 ----------------------------------------
