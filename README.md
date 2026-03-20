@@ -42,4 +42,13 @@ i am usually with my FRIENDS... my friends are NICE, they wont bite a swear.. if
 
 ---------------------
 
-uhh hold on im workogn on something here
+
+
+
+<!-- Basic hyperlink -->
+<a href="https://eddiebert.straw.page">**<u>STRAWPAGE (NEW!!)</u>**</a> <!-- Link that opens in a new tab --> ::
+<a href="https://watcherbites.atabook.org" target="_blank">**<u>ATABOOK</u>**</a>
+
+<!-- Link with title attribute for tooltip -->
+<a href="en.pronouns.page/@watcherbites" title="Go to Example website">**<u>PRONOUNS PAGE</u>**</a> <!-- Link with title attribute for tooltip --> ::
+<a href="https://youtu.be/dQw4w9WgXcQ" title="Go to Example website">**<u>WORK IN PROGRESS</u>**</a>
