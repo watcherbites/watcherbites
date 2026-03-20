@@ -1,7 +1,5 @@
 
-
-
-  <img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "300" >
+<img src="https://cdn.phototourl.com/uploads/2026-03-20-e1bc546a-8187-4d3a-af37-e0c1a5783ade.gif" width= "300" >
 
 HELLO!! I'M ERIN, WELCOME TO MY GITHUB!
 ---------------------
@@ -52,3 +50,8 @@ i am usually with my FRIENDS... my friends are NICE, they wont bite a swear.. if
 <!-- Link with title attribute for tooltip -->
 <a href="en.pronouns.page/@watcherbites" title="Go to Example website">**<u>PRONOUNS PAGE</u>**</a> <!-- Link with title attribute for tooltip --> ::
 <a href="https://youtu.be/dQw4w9WgXcQ" title="Go to Example website">**<u>WORK IN PROGRESS</u>**</a>
+
+
+ <img src="https://cdn.phototourl.com/uploads/2026-03-20-6728e60f-b454-4569-a58d-1d61fb3e4899.gif" width= "90" >  <img src="https://cdn.phototourl.com/uploads/2026-03-20-869c0c47-f47e-4ab5-bb3a-5204f9e63aa6.gif" width= "100" ><img src="https://cdn.phototourl.com/uploads/2026-03-20-8a9efd53-116e-4ef9-bd42-174ba35b5f76.gif" width= "100" > <img src="https://cdn.phototourl.com/uploads/2026-03-20-686d7d1a-6dac-472f-9d79-a7863e74c411.gif" width= "100" >
+
+</p> my sona awww awwwww
