@@ -27,13 +27,13 @@ oh also please try not to jokingly cover my pony unless we are close pals (the o
 <details>
 <summary><strong>INT :</strong></summary>
 
-HOMESTUCK FANS OHH YESS!! musical fans (i sure love a good showtune heh), UHH MY BUDDIES,, (EVEN IF WE DONT KNOW EACHOTHER THAT WELL YET OR SOMETHING I STILL WANNA INT WITH YOOU),, and uh I DONT REALLY KNOW, ILL COME BACK TO THIS LATER..
+HOMESTUCK FANS OHH YESS!! musical fans (i sure love a good showtune heh), UHH MY BUDDIES,, (EVEN IF WE DONT KNOW EACHOTHER THAT WELL YET OR SOMETHING I STILL WANNA INT WITH YOOU),, and uh I DONT REALLY KNOW, ILL COME BACK TO THIS LATER..)
 </details>
 
 <details>
 <summary><strong>OTHER STUFF?? :</strong></summary>
 
-i am usually with my FRIENDS... my friends are NICE, they wont bite a swear.. if i am sitting with any of them and you wanna come around dont be afraid to, just let me greet you so they know that youre with me and they dont accidentally hide you.. GULP!
+i am usually with my FRIENDS... my friends are NICE, they wont bite i swear.. if i am sitting with any of them and you wanna come around dont be afraid to, just let me greet you so they know that youre with me and they dont accidentally hide you.. GULP!
 
 (okay i'll come back to this wait for me...) (literally doesnt come back)
 </details>
