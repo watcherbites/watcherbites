@@ -5,7 +5,8 @@ HELLO!! I'M ERIN, WELCOME TO MY GITHUB!
 ---------------------
 <details>
 <summary><strong>BEFORE YOU INTERACT / ABOUT ME :</strong></summary>
-
+── ⟢ ・⸝⸝
+ 
 i get nervous EASILY.. i sometimes struggle to initiate conversation with people, coming up to me or whispering to me is REALLY HELPFUL and ENCOURAGED! i LOVE talking to people and making new friends (ESPECIALLY HOMESTUCK ONES).. i LOVE c + h but i get nERVOUSS just walking up!! if you see me around and you wanna sit with me or vice versa just WHISPER (I MIGHT NOT SEE IT AT FIRST IF IM OFFTAB OR AFK THOUGH... BUT I WILL COME!)
 
 i also struggle with low self esteem (gasp sound effect) but i TRY not to let that get in the way of making pals and interacting with people. i tend to overthink and overanylyze stuff sometimes, if theres something up, dont be afraid to tell me!! i CRAVE communication and im always open to hear some critisizm to help me improve!!!
@@ -16,26 +17,44 @@ SOMETIMES WHEN IM WITH CERTAIN PEOPLE MY HUMOR GETS A LITTLE BIT DIRTY.. I APOLO
 </details>
 <details>
 <summary><strong>DNI :</strong></summary>
+── ⟢ ・⸝⸝
+ 
+proshippers,,
 
-HUNTER. /j
+incest enthusiasts,,
 
-proshippers, darkshippers, problematic fellas, uhhh what else uhh,, MEAN PEOPLE... HMM people who are not nice to my friends and overly sexual strangers / NEW friends.. oh also ex proshippers and darkshippers are on thin ice along with people who were problematic in the past, but mostly ex pro and darkship, i dont play about that shit NO SIREE..
+problematic mofos,,
 
-oh also please try not to jokingly cover my pony unless we are close pals (the ones in my bios mostly, you fellas can dont worry...), LIKE SITTING ON ME AND HIDING ME... SORRY... LOOKS AROUND
+people who disrespect my buddies,,
+
+overly sexual strangers / NEW friends,,
+
+ex-proship and previously problematic fellers are on thin-ice, though i will not hesitate to block / hide if i find myself uncomfortable around you...
 </details>
 
 <details>
 <summary><strong>INT :</strong></summary>
+── ⟢ ・⸝⸝
+ 
+homestuck fans,,
 
-HOMESTUCK FANS OHH YESS!! musical fans (i sure love a good showtune heh), UHH MY BUDDIES,, (EVEN IF WE DONT KNOW EACHOTHER THAT WELL YET OR SOMETHING I STILL WANNA INT WITH YOOU),, and uh I DONT REALLY KNOW, ILL COME BACK TO THIS LATER..)
+friends of friends (would love to meet some of you guys hehuhu),,
+
+literally anyone as long as you arent in my dni,,
+
+I DONT KNOW WHAT TO PUT HERE, I LIKE TALKING TO EVERYONE... everyone int PLES!!
+
 </details>
 
 <details>
 <summary><strong>OTHER STUFF?? :</strong></summary>
+── ⟢ ・⸝⸝
 
-i am usually with my FRIENDS... my friends are NICE, they wont bite i swear.. if i am sitting with any of them and you wanna come around dont be afraid to, just let me greet you so they know that youre with me and they dont accidentally hide you.. GULP!
+ i occassionally sit with my friends! my friends are SUPER NICE and they DON'T BITE, I SWEAR.. if i am sitting with them and you would like to come over, don't be afraid to, just let me greet you so they know that you're a pal of mine and don't accidentally hide you!!
 
-(okay i'll come back to this wait for me...) (literally doesnt come back)
+ as i've said, c + h is ALWAYS welcome, dont care if i know you or not, get over here,,,
+
+ i also dont know what to put here AGH.. i'll fill this up later..
 </details>
 
 ---------------------
